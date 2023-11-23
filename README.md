@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Samandarmahamadov
 - 👀 I’m interested in codes
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me +998943650617
 
